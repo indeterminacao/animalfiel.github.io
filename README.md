@@ -1,1 +1,1 @@
-sjdadskjlasdkjldskjldskljadwkldskldsklklds
+Este foi um projeto feito no ensino médio. Não me lembro ao certo o nome da disciplina, porém creio que era Empreendedorismo. A atividade consistia em criar uma empresa/organização e criar um app e/ou site sobre a ideia.
